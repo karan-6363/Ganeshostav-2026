@@ -1,1 +1,1 @@
-# Ganeshostav-2026
+# Ganeshosta.2026
